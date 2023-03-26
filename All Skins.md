@@ -1,6 +1,9 @@
 ﻿
 ## [Simplistic Blue](https://drive.google.com/file/d/1QGjY17sAW6V8MDtfN2PMCQBqmTUu8PbC/view?usp=share_link)
    ![enter image description here](https://i.imgur.com/05SkpVJ.png)
+   
+## [Ultra Laser 9000](https://drive.google.com/file/d/1o48WjlZAeTdAUWQvJVYaYlYCGC5thjwd/view?usp=share_link)
+   ![enter image description here](https://i.imgur.com/ORD7dHd.png)
  
 ## [Akari](https://drive.google.com/file/d/1LNVS_QuOMcx31yPOtYsX5spArFOqhJy5/view?usp=share_link)
    ![enter image description here](https://i.imgur.com/qW79Qcn.png)
