@@ -1,4 +1,5 @@
-## [Aesthetics of Neko (Cyrillic Edit)](https://drive.google.com/file/d/1XjDS48UX8ptn3e8_7OofaUUaBbZP8K9d/view?usp=share_link) !![enter image description here](https://i.imgur.com/VVB51z2.png)
+## [Aesthetics of Neko (Cyrillic Edit)](https://drive.google.com/file/d/1XjDS48UX8ptn3e8_7OofaUUaBbZP8K9d/view?usp=share_link) 
+![enter image description here](https://i.imgur.com/VVB51z2.png)
 
 ## [black and yellow](https://drive.google.com/file/d/1xbybk8RFjiqawpkMvrlcJuqvzuPSMjX6/view?usp=share_link)
    ![enter image description here](https://i.imgur.com/h8HKnxR.png)
