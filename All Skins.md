@@ -1,7 +1,7 @@
 ## [Aesthetics of Neko (Cyrillic Edit)](https://drive.google.com/file/d/1XjDS48UX8ptn3e8_7OofaUUaBbZP8K9d/view?usp=share_link) 
 ![enter image description here](https://i.imgur.com/VVB51z2.png)
 
-## [GERMANY]([https://drive.google.com/file/d/1w8aSrSgXdEzqLCuk-e9ctCP1Ovqusbt_/view?usp=share_link])
+## [GERMANY](https://drive.google.com/file/d/1w8aSrSgXdEzqLCuk-e9ctCP1Ovqusbt_/view?usp=share_link)
    ![enter image description here](https://i.imgur.com/h8HKnxR.png)
 
 ## [Simplistic Blue](https://drive.google.com/file/d/1QGjY17sAW6V8MDtfN2PMCQBqmTUu8PbC/view?usp=share_link)
