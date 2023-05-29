@@ -2,7 +2,7 @@
 ![enter image description here](https://i.imgur.com/VVB51z2.png)
 
 ## [GERMANY](https://drive.google.com/file/d/1w8aSrSgXdEzqLCuk-e9ctCP1Ovqusbt_/view?usp=share_link)
-   ![enter image description here](https://i.imgur.com/h8HKnxR.png)
+   ![enter image description here](https://osu.ppy.sh/ss/18623039/baef)
 
 ## [Simplistic Blue](https://drive.google.com/file/d/1QGjY17sAW6V8MDtfN2PMCQBqmTUu8PbC/view?usp=share_link)
    ![enter image description here](https://i.imgur.com/05SkpVJ.png)
