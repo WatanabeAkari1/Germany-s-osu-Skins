@@ -1,3 +1,6 @@
+## [Deutsche Reading Skin](https://drive.google.com/file/d/1-mdQeR0ZpK3k_C6zV_Et7l_aP1ByWNtt/view?usp=drive_link) 
+![enter image description here](https://imgur.com/Aje3ygK)
+
 ## [Aesthetics of Neko (Cyrillic Edit)](https://drive.google.com/file/d/1XjDS48UX8ptn3e8_7OofaUUaBbZP8K9d/view?usp=share_link) 
 ![enter image description here](https://i.imgur.com/VVB51z2.png)
 
